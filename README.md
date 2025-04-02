@@ -56,4 +56,4 @@ Feel free to reach out or view my other projects on:
 
 ---
 
-This project was a wonderful experience, and I look forward to tackling more challenges like this!
+This project was a wonderful experience, and I look forward to tackling more challenges like this 🙏!
